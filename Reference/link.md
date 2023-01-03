@@ -7,3 +7,5 @@ https://buzzorange.com/citiorange/2022/09/27/the-carbon-almanac-3/
 https://buzzorange.com/citiorange/2022/09/19/greenwashing-in-fashion/
 
 https://buzzorange.com/citiorange/2022/09/15/greenwash-climate/
+
+https://buzzorange.com/citiorange/2022/05/27/embodied-carbon/
