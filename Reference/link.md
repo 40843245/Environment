@@ -23,3 +23,5 @@ https://buzzorange.com/citiorange/2022/01/25/carbon-emission/
 https://buzzorange.com/citiorange/2022/01/13/green-electricity/
 
 https://buzzorange.com/citiorange/2022/01/05/eu-nuclear-green-power/
+
+https://buzzorange.com/citiorange/2021/12/01/nclearpowerplant4/
