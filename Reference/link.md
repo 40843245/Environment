@@ -25,3 +25,5 @@ https://buzzorange.com/citiorange/2022/01/13/green-electricity/
 https://buzzorange.com/citiorange/2022/01/05/eu-nuclear-green-power/
 
 https://buzzorange.com/citiorange/2021/12/01/nclearpowerplant4/
+
+https://buzzorange.com/citiorange/2021/11/25/mindiworldnews-talk-referendum/
