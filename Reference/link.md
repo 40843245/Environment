@@ -31,3 +31,13 @@ https://buzzorange.com/citiorange/2021/11/25/mindiworldnews-talk-referendum/
 https://buzzorange.com/citiorange/2021/11/03/import-usa-pork/
 
 https://buzzorange.com/citiorange/2021/11/19/algal-reef-referendum/
+
+https://buzzorange.com/citiorange/2021/11/24/abstentionvote/
+
+https://buzzorange.com/citiorange/2021/11/15/swiss-referendum/
+
+https://buzzorange.com/citiorange/2021/11/08/2021-referendum/
+
+https://buzzorange.com/citiorange/2021/11/04/import-usa-pork-2/
+
+https://buzzorange.com/citiorange/2020/11/13/animal-outlook-and-kmt/
